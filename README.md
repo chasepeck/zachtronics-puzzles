@@ -11,7 +11,7 @@ To install a TIS-100 puzzle, copy the code from the link given, go into the TIS-
 ---
 
 ## **EXAPUNKS**
-- [Googolplex Advertising®](https://steamcommunity.com/sharedfiles/filedetails/?id=2560401868)
+- [Googolplex Advertising®](https://steamcommunity.com/sharedfiles/filedetails/?id=2560401868) - [*Solution*](https://youtu.be/dM1yfa4Kf4M)
 
 ---
 
